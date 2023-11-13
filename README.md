@@ -1,0 +1,1 @@
+# seznamukolu-mocnefunguje-
